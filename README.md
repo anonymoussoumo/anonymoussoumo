@@ -12,7 +12,7 @@ And I am from India
 💚💚💚
 
 💖💖💖follow me guys 
-thank you5💛💛💛
+thank you💛💛💛
 
 <!---
 anonymoussoumo/anonymoussoumo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
